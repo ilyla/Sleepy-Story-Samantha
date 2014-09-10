@@ -66,7 +66,7 @@ ElysianTail: Oh, please call me Ely! Everyone else does, and you're very welcome
 	Samantha disconnected from the room, and then laid back into her chair, unable and unwilling to move anymore. And then she remembered something about the shorthand she just called her partner, Ely. Where had she heard that name before? 
 
 9:41:29 pm: [INFO] SamIAm♀↓ has joined.
-9:41:29 pm: [INFO] Users in the chatroom: [ 'WiseFerret78↕' 'SleepySnake♂↓' 'ScottB♂↑' 'Vic♂↑' 'Zach♂↑' 'Davixxa♂↓' 'HypnoticVoice♂↑' 'Dawn♂↓' 'HypnotizedTortoise23↕' 'HypnoticDoge♂↕' 'Markus♂↑' 'HypnoFan71♂↓' 'pet♂↓' 'Dreamy↕' 'MindlessOtter♂↓' 'BlankWoodchuck67↕' 'Peep_Ex_Machina♂↓' 'SleepyCamel48♀↓' 'TiredOx43♂↕' 'SleeperCell♂↓' 'Lauren♀↓' ]
+9:41:29 pm: [INFO] Users in the chatroom: [ 'WiseFerret78↕' 'SleepySnake♂↓' 'ScottB♂↑' 'Vic♂↑' 'Zach♂↑' 'Davixxa♂↓' 'HypnoticVoice♂↑' 'Dawn♂↓' 'HypnotizedTortoise23↕' 'HypnoticDoge♂↕' 'Markus♂↑' 'HypnoFan71♂↓' 'pet♂↓' 'Dreamy↕' 'MindlessOtter♂↓' 'BlankWoodchuck67↕' 'Peep_Ex_Machina♂↓' 'SleepyCamel48♀↓' 'TiredOx43♂↕' 'SleeperCell♂↓' 'Lauren♀↓' 'SamIAm♀↓' ]
 SamIAm: Hi
 Vic: You clearly don't understand quantum computing
 SleeperCell: What I don't understand is how they're relavant to this
