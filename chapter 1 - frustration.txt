@@ -17,7 +17,7 @@ Stranger: Hi.
 You: How are you today?
 Stranger: Fine.
 Stranger: a/s/r?
-You: 24/f/sub
+You: 20/f/sub
 Chatbot: The Stranger has disconnected.
 
 	“Ok, that one was a sub, too.” She mumbled to herself. She tried to be as indifferent as possible. “Let’s try one more time before bed.” She opened another chat session.
@@ -25,7 +25,7 @@ Chatbot: The Stranger has disconnected.
 Stranger: hey there
 You: Hi, how are you?
 Stranger: asr?
-You: 24/f/sub
+You: 20/f/sub
 Stranger: whats your trigger?
 You: For trance?
 Stranger: yep
