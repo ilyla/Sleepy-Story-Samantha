@@ -95,7 +95,7 @@ EnchantingBear69: You ready?
 SamIAm: Yup
 EnchantingBear69: Hypnotime
 
-	Samantha felt something, like a wave of sleepyness, and then she was wide awake, refreshed, and feeling great\
+	Samantha felt something, like a wave of sleepiness, and then she was wide awake, refreshed, and feeling great\
 
 EnchantingBear69: Hi
 SamIAm: I feel great!
@@ -161,7 +161,7 @@ Jolly: Okay, whenever someone joins, say "Hello <name>, I'm Slavegirl. Your wish
 Jolly: Then use "/me" to give them a kiss
 Jolly: Start with NiceAndSleepy
 
-	Befre Slavegirl could react, her hands were already moving across the keyboard
+	Before Slavegirl could react, her hands were already moving across the keyboard
 
 SamIAm: Hello NiceAndSleepy, I'm Slavegirl. Your wish is my command
 *SamIAm gives NiceAndSleepy a kiss*
@@ -222,7 +222,7 @@ SamIAm: That's incredible Master
 Jolly: There's more!
 SamIAm: No!
 
-	Samantha lived in Slavdonia, the only country where the sale of slavegirls was not only leagal, but encouraged. Bosh was her slave master, but he was trying to sell her to a man named Jolly. She was to convince him that she would make a good slavegirl.
+	Samantha lived in Slavdonia, the only country where the sale of slavegirls was not only legal, but encouraged. Bosh was her slave master, but he was trying to sell her to a man named Jolly. She was to convince him that she would make a good slavegirl.
 
 Bosh: We have many slaves for sale, but this is my personal favorite
 Bosh: Her name is Samantha
@@ -332,4 +332,4 @@ Jolly: I have to go now
 Jolly: But it's getting late and you're feeling tired, you should go to bed
 SamIAm: Okay
 
-	She left sleepychat, and went to bed, noticing that she was her old clothes instead of an 8 inch skirt and a fishnet top. She brushed her teeth, changed into her pajamas, and crawled into bed. *Yep, definately still wearing my pajamas*, she thought, *I wonder when I'll take them off*. She felt so nice in the warm comforter that she went to sleep just a few seconds later 
+	She left sleepychat, and went to bed, noticing that she was her old clothes instead of an 8 inch skirt and a fishnet top. She brushed her teeth, changed into her pajamas, and crawled into bed. *Yep, definitely still wearing my pajamas*, she thought, *I wonder when I'll take them off*. She felt so nice in the warm comforter that she went to sleep just a few seconds later 
