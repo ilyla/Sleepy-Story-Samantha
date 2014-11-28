@@ -26,7 +26,7 @@ M♂↑BurntPenny
 ♀↓CloudAmy
 ♀↓Annie
 ♂↓Rival
-♂↓Hypnonymoose
+M♂↑Hypnonymoose
 ♂↓Haru
 ♂↑knowing-smile
 ♀↓Lauralai
@@ -55,7 +55,7 @@ Annie: Oh yeah, Hi Sam
 Annie: What's up?
 SamIAm: Well erm... I'm looking to be hypnotized
 Hypnonymoose: I'm up for a session
-Hypnonymoose: Wanna do it>
+Hypnonymoose: Wanna do it?
 SamIAm: Sounds fun, let's
 7:01:15 am: [INFO] Hypnonymoose would like to chat with you privately!
 7:01:15 am: [INFO] *Click here to enter the room*.
