@@ -2,6 +2,7 @@ This chapter was *heavily* edited by Hypnonymoose, 'cause he's so cool (and prob
 
 D'awww, you shouldn't have~
 	- Hypnonymoose
+
 ------------
 
 	Samantha is a very good maid. Tonight Master is hosting a movie night with his friends, which means her job to make food and serve drinks and sate whatever other needs Master's friends have. How exciting! And they were all here already, sitting on the couch with Master, watching Stir of Echoes, sipping beers, eating snacks. But as she walked back and forth from the kitchen to the living room, refilling drinks, preparing snacks, she could feel them looking less and less at the movie, and more and more at her, half-naked in her French maid outfit, helplessly exposed, stripping her in their minds. God, it was making her horny.
