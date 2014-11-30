@@ -2,6 +2,8 @@ This chapter was *heavily* edited by Hypnonymoose, 'cause he's so cool (and prob
 
 D'awww, you shouldn't have~
 	- Hypnonymoose
+Sometimes, two people editing a story just isn't enough.
+	- Anonymoususer2
 
 ------------
 
