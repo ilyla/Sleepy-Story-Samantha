@@ -276,7 +276,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*Hypnonymoose: Oh nothing*`
 
 
-  Suddenly Samantha Felt that wave of sleepyness come over her, and her whole body became very relaxed. She felt herself deleting the conversation from her phone, and deciding not to think about it anymore. She was reading Hypnonymoose's words, but it didn't feel like she was consiously proccessing them, more like they were going staight into the back of her mind and she didn't even have to think about them. He asked her questions about herself, her fetishes, that kind of thing, which she answered without really thinking. He was telling her lot's of things, like things to dress, things to buy, how to speak, and other things. He was always making sure she was okay with it, though, and he made sure she wouldn't do anything bad just because he told her to. After a while, he said something about counting to 5 and becoming awake again
+  Suddenly Samantha Felt that wave of sleepyness come over her, and her whole body became very relaxed. She felt herself deleting the conversation from her phone, and deciding not to think about it anymore. She was reading Hypnonymoose's words, but it didn't feel like she was consciously processing them, more like they were going staight into the back of her mind and she didn't even have to think about them. He asked her questions about herself, her fetishes, that kind of thing, which she answered without really thinking. He was telling her lot's of things, like things to dress, things to buy, how to speak, and other things. He was always making sure she was okay with it, though, and he made sure she wouldn't do anything bad just because he told her to. After a while, he said something about counting to 5 and becoming awake again
 
 
 `*Hypnonymoose: 5*`
@@ -290,4 +290,4 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*SamIAm: Evil boy*`
 
 
-  Samantha looked at the time, suprised to see that 45 minutes had already passed. If she left now she would still be late for work, but not late enough for it to be too big of a problem. She didn't notice anything odd that day, but that was because the suggestions wouldn't kick in until the next day...
+  Samantha looked at the time, surprised to see that 45 minutes had already passed. If she left now she would still be late for work, but not late enough for it to be too big of a problem. She didn't notice anything odd that day, but that was because the suggestions wouldn't kick in until the next day...
