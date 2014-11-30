@@ -2,10 +2,11 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 
 ------------
 
-    Samantha awoke the next day in a jumble of sheets and comforter, two of her three pillows on the floor halfway across the room. At first, she just laid there, eyes closed, letting herself come to. Lifting her arm from where it hang off the bed, she openned her eyes to find her smooth, red hair strewn across her face. Removing the hair, she took a deep breath in, held it, and stretched both her arms, and her legs. Her last pillow fell off the bed. And as she sat up, her eyes still only half open, she realized that she had been sleeping with her feet near her headboard, completely upside own from her normal position. A moment later, an alert rang from her phone. It was her friend. She had to reach to grab her phone from it's charger, and in doing so she realized she was completely nude, with her pagamas and underwear piled up on the floor next to her. *Now how did that happen?* She instincively covered up with the bedsheet, and grabbed her phone from its spot on the floor. 
+  Samantha awoke the next day in a jumble of sheets and comforter, two of her three pillows on the floor halfway across the room. At first, she just laid there, eyes closed, letting herself come to. Lifting her arm from where it hang off the bed, she openned her eyes to find her smooth, red hair strewn across her face. Removing the hair, she took a deep breath in, held it, and stretched both her arms, and her legs. Her last pillow fell off the bed. And as she sat up, her eyes still only half open, she realized that she had been sleeping with her feet near her headboard, completely upside own from her normal position. A moment later, an alert rang from her phone. It was her friend. She had to reach to grab her phone from it's charger, and in doing so she realized she was completely nude, with her pagamas and underwear piled up on the floor next to her. *Now how did that happen?* She instincively covered up with the bedsheet, and grabbed her phone from its spot on the floor. 
 
 
-<6:56 AM>
+`<6:56 AM>`
+
 `*The_Id_Monster: Hey! So have you gone to sleepychat yet?*`
 
 `*Tweety44: I did.*`
@@ -19,13 +20,13 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 `*The_Id_Monster: So what did you do? Did you orgasm? :3*`
 
 
-    Samantha was a little surpised by that last message. Her friend had never directly talked about erotic things like this before. She looked at the message again.
+  Samantha was a little surpised by that last message. Her friend had never directly talked about erotic things like this before. She looked at the message again.
 
 
 `*The_Id_Monster: So what did you do? Did you get hypnotized? :3
 
 
-    She had misread it, but something seemed off... Something had stirred inside of her, and made her feel... aroused? The feeling was extremely faint, so she dismissed it, and returned to the converstion.
+  She had misread it, but something seemed off... Something had stirred inside of her, and made her feel... aroused? The feeling was extremely faint, so she dismissed it, and returned to the converstion.
 
 
 `*Tweety44: I think I was, actually.*`

@@ -5,8 +5,9 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
   Despite the sunny day, Samantha's room was still dark when she woke up. She liked it that way. She rolled over in her bed to reach for her phone, and pressed the lock button. The screen sprang to life with the time, and she had to shield her eyes from the blindingly bright light the phone shined on her. When her eyes adjusted, she saw a clear "7:03". She had woken up a bit earlier then she needed to, despite how late she had gotten to bed. She never needed an alarm clock. For some reason, she always woke up at around the same time, even when she got to bed late. She didn't have to go to work until 8:00, so she figured that she would probably be able to check out that site, sleepychat or something.
   As she was getting dressed, her phone jingled. She glanced at the screen to see a text from a coworker, Heidi.
 
+`<7:03 am>`
 
-Heidi: Where r you?!! It starts in 2 minutes!
+`*Heidi: Where r you?!! It starts in 2 minutes!*`
 
 
   She was confused for a moment, and then it hit her. She and a couple of others in her group had a big meeting with McGraw Hill Education. A meeting that started at 7:10. She threw on the rest of her clothes, grabbed a disposable toothbrush out of the bathroom drawer, jumped into her car, and drove just slightly above the acceptable speed. When she arrived, she was only 5 minutes late. She mumbled an apology and sat down in the conference room, and Heidi gave her a smile. Luckily for Samantha, it was a Monday and nobody was very happy about having to wake up 50 minutes earlier than usual, so nobody seemed to mind too much. She sped through the rest of the workday, mostly on autopilot. The biggest annoyance of her entire day was at having to tell everyone that no, she wasn't sick or something, she just hadn't put on any makeup.
@@ -16,7 +17,8 @@ Heidi: Where r you?!! It starts in 2 minutes!
   A few minutes later, a Hangouts message popped up.
 
 
-<04:49 PM>
+`<04:49 PM>`
+
 `*The_Id_Monster: Did you check out that site?*`
 
 `*Tweety44: what was it called again?*`
