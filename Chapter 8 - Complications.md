@@ -1,4 +1,4 @@
-This chapter was *heavily* edited by Hypnonymoose, 'cause he's so cool (and probably better at polishing a story than ScottB).   - ScottB
+This chapter was *heavily* edited by Hypnonymoose, 'cause he's so cool (and probably better at polishing a story than ScottB).	- ScottB
 
 D'awww, you shouldn't have~
 	- Hypnonymoose
