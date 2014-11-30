@@ -23,7 +23,7 @@ She put on some old baggy morning clothes and went downstairs to make scarmbled 
 
 A shriek from her phone snapped her out of it, her heart almost leaping out of her chest. After taking a moment to calm herself down again, she checked her phone and found a text message from her cousin Andrew. She sighed. Her song was so nice. Although, she couldn't remember how it went now. Odd. She shrugged and opened the message.
 
-`*Andrew: i need to make a website for college applications. do u think u could design one for me?*`
+*`Andrew: i need to make a website for college applications. do u think u could design one for me?`*
 
 Is her one day off really the time to bother her with work stuff? She moved the eggs to a plate, irritated, and toyed with the idea of ignoring him and trying to remember her little song again (*like a good girl*), but ruled against it. He's still family. She took a spoonful of egg and wrote back:
 
