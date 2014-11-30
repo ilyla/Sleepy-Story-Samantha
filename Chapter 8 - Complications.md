@@ -23,19 +23,19 @@ She put on some old baggy morning clothes and went downstairs to make scarmbled 
 
 A shriek from her phone snapped her out of it, her heart almost leaping out of her chest. After taking a moment to calm herself down again, she checked her phone and found a text message from her cousin Andrew. She sighed. Her song was so nice. Although, she couldn't remember how it went now. Odd. She shrugged and opened the message.
 
-  *Andrew: i need to make a website for college applications. do u think u could design one for me?*
+`*Andrew: i need to make a website for college applications. do u think u could design one for me?*`
 
 Is her one day off really the time to bother her with work stuff? She moved the eggs to a plate, irritated, and toyed with the idea of ignoring him and trying to remember her little song again (*like a good girl*), but ruled against it. He's still family. She took a spoonful of egg and wrote back:
 
-  *Samantha: Good morning to you too. What kinda website? I can do it for free if you just want something simple.*
-  *Andrew: shouldnt be too hard. i just want something that says my name and has a picture of me and some information*
-  *Andrew: apparently it looks good on a college application*
+`*Samantha: Good morning to you too. What kinda website? I can do it for free if you just want something simple.*`
+`*Andrew: shouldnt be too hard. i just want something that says my name and has a picture of me and some information*`
+`*Andrew: apparently it looks good on a college application*`
 
 She took another bite. There's nothing she'd like less right now than to design websites. But she could probably slap something together using some free host in about half an hour. Shouldn't be too hard.
 
-  *Samantha: Maybe, we'd have to talk about it more.*
-  *Andrew: can u come over to my house in about an hour? so can talk then*
-  *Samantha: Fine, see you then.*
+`*Samantha: Maybe, we'd have to talk about it more.*`
+`*Andrew: can u come over to my house in about an hour? so can talk then*`
+`*Samantha: Fine, see you then.*`
 
 She sighed again. This was going to be a long day, but at least she still had a bit of me-time. She finished her eggs, and popped on her computer. She hastily replied to a few work emails, and went straight to Hypnohub. On it, she flicked through a few really nice YouTube videos (something by a hypnotic ninja? He had a German accent), and just barely resisted the urge to buy a *really hot* fishnet top and a tiny skirt on amazon.
 
