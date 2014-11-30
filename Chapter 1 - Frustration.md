@@ -2,15 +2,15 @@ Nothing in this story actually happened, to our knowledge, although almost every
 
 ------------
 
-	Samantha stared at the computer screen, the only light in her bedroom, save for the moon. She was a little apprehensive of what she would find once she clicked the red “Start the Chat!” button; it was a feeling not unlike opening an unexpected letter from the IRS. She remembered when she first stumbled across this chat site, called *Zetle*, how excited she was. A huge pool of users which could be filtered by interest, so that anyone could chat about whatever subject they wanted.
+  Samantha stared at the computer screen, the only light in her bedroom, save for the moon. She was a little apprehensive of what she would find once she clicked the red “Start the Chat!” button; it was a feeling not unlike opening an unexpected letter from the IRS. She remembered when she first stumbled across this chat site, called *Zetle*, how excited she was. A huge pool of users which could be filtered by interest, so that anyone could chat about whatever subject they wanted.
 
-	For her, the subject was erotic hypnosis. Samantha had an interest in hypnosis since her first stirrings of puberty. Thinking back on it, she could only speculate that her fascination had come from various Saturday morning cartoons, where she watched the heroine or damsel-in-distress fell under the complete control of the all-powerful villain. Obedient. Submissive. Helpless. As she matured, she realized she wanted that for herself, to be taken deep into trance, to have her psyche laid bare, to be reshaped into whatever pleased her hypnotist.
+  For her, the subject was erotic hypnosis. Samantha had an interest in hypnosis since her first stirrings of puberty. Thinking back on it, she could only speculate that her fascination had come from various Saturday morning cartoons, where she watched the heroine or damsel-in-distress fell under the complete control of the all-powerful villain. Obedient. Submissive. Helpless. As she matured, she realized she wanted that for herself, to be taken deep into trance, to have her psyche laid bare, to be reshaped into whatever pleased her hypnotist.
 
-	From her experience, it was going to be a lifelong quest to get there.
+  From her experience, it was going to be a lifelong quest to get there.
 
-	She clicked the button, and was connected with a stranger. The automated message appeared: “You and your chatting partner both like Erotic Hypnosis. Enjoy!”
+  She clicked the button, and was connected with a stranger. The automated message appeared: “You and your chatting partner both like Erotic Hypnosis. Enjoy!”
 
-	She waited, and when enough time had passed without activity, she decided to be proactive.
+  She waited, and when enough time had passed without activity, she decided to be proactive.
 
 
 `*You: Hello!*`
@@ -28,7 +28,7 @@ Nothing in this story actually happened, to our knowledge, although almost every
 `*Chat: The Stranger has disconnected.*`
 
 
-	“Ok, that one was a sub, too.” She mumbled to herself. She tried to be as indifferent as possible. “Let's try one more time before bed.” She opened another chat session.
+  “Ok, that one was a sub, too.” She mumbled to herself. She tried to be as indifferent as possible. “Let's try one more time before bed.” She opened another chat session.
 
 
 `*Stranger: hey there*`
@@ -64,7 +64,7 @@ Nothing in this story actually happened, to our knowledge, although almost every
 `*Stranger: breath slowly, in and out*`
 
 
-	Samantha consciously slowed her breathing, and sat back in her chair. She wanted this *so badly*, why was it so hard to find someone who would give it to her?
+  Samantha consciously slowed her breathing, and sat back in her chair. She wanted this *so badly*, why was it so hard to find someone who would give it to her?
 
 
 `*Stranger: out loud*`
@@ -74,7 +74,7 @@ Nothing in this story actually happened, to our knowledge, although almost every
 `*Stranger: sinking deepeer*`
 
 
-	She did as she was told, counting under her breath. She was beginning to feel excited as she followed the commands on her screen.
+  She did as she was told, counting under her breath. She was beginning to feel excited as she followed the commands on her screen.
 
 
 `*Stranger: also type along with what you say*`
@@ -108,7 +108,7 @@ Nothing in this story actually happened, to our knowledge, although almost every
 `*Stranger: GOOD GIRL*`
 
 
-	Samantha saw the words and understood what they were supposed to do, but... nothing. Nada. She was awake, sitting here in her chair in the middle of the night, definitely not orgasming.
+  Samantha saw the words and understood what they were supposed to do, but... nothing. Nada. She was awake, sitting here in her chair in the middle of the night, definitely not orgasming.
 
 
 `*Stranger: now my girl, what are you wearing?*`
@@ -122,9 +122,9 @@ Nothing in this story actually happened, to our knowledge, although almost every
 `*Stranger: do it now...*`
 
 
-	Samantha stood up and pulled her shorts down, leaving them around her ankles as she sat back down. She was fairly sure she wasn't in trance. She still felt a nice rush from willingly doing tasks demanded of her, but she was under the impression that hypnosis would leave her completely unable to disobey. She wanted to be in a position where she could struggle against it as much as she wanted to and it wouldn't make any difference in how quickly her shorts came off.
+  Samantha stood up and pulled her shorts down, leaving them around her ankles as she sat back down. She was fairly sure she wasn't in trance. She still felt a nice rush from willingly doing tasks demanded of her, but she was under the impression that hypnosis would leave her completely unable to disobey. She wanted to be in a position where she could struggle against it as much as she wanted to and it wouldn't make any difference in how quickly her shorts came off.
         
-	Maybe she would slip under if she tried to focus on what trance would be like? If she just tried to make herself feel like a person in trance would feel?
+  Maybe she would slip under if she tried to focus on what trance would be like? If she just tried to make herself feel like a person in trance would feel?
 
 
 `*Stranger: Are they off??*`
@@ -178,9 +178,9 @@ Nothing in this story actually happened, to our knowledge, although almost every
 `*Stranger: and now you feel like giving me ur skype name*`
 
 
-	Samantha disconnected. She felt disgusted that a hypnotist would overstep bounds like that, and she was annoyed at herself because she kept coming back to that stupid chat site. She needed to do something to get her mind off that. It was too late to go out or anything, so she logged into Hypnohub.com and started scrolling through a mountains of pictures where the vast majority just weren't well-done enough to make her feel anything. The best one was by a guy named Zko, about a girl who was hypnotized by looking at an image.
+  Samantha disconnected. She felt disgusted that a hypnotist would overstep bounds like that, and she was annoyed at herself because she kept coming back to that stupid chat site. She needed to do something to get her mind off that. It was too late to go out or anything, so she logged into Hypnohub.com and started scrolling through a mountains of pictures where the vast majority just weren't well-done enough to make her feel anything. The best one was by a guy named Zko, about a girl who was hypnotized by looking at an image.
 
-	She knew she was procrastinating, trying to avoid starting a big project for her work. It was getting late, but she knew she probably should finish the project today. Just as she was thinking that, a friend of hers, known by her screen name The_Id_Monster, sent her a message.
+  She knew she was procrastinating, trying to avoid starting a big project for her work. It was getting late, but she knew she probably should finish the project today. Just as she was thinking that, a friend of hers, known by her screen name The_Id_Monster, sent her a message.
 
 
 `<12:43 AM>`
@@ -258,6 +258,6 @@ Nothing in this story actually happened, to our knowledge, although almost every
 `*Tweety44: :)*`
 
 
-	She logged out of the site, pulled up her pants, then decided to make herself some dinner before she went to work. As she warmed up some pasta, she mulled over the conversation. What he said sounded promising, but she wasn't completely convinced. Who's to say whether people weren't assholes there, too? Instead of the school analogy, it could be the difference between being with a creepy pervert in a big room and being with a creepy pervert in a small room. Then again, maybe she should try to have more faith in people.
+  She logged out of the site, pulled up her pants, then decided to make herself some dinner before she went to work. As she warmed up some pasta, she mulled over the conversation. What he said sounded promising, but she wasn't completely convinced. Who's to say whether people weren't assholes there, too? Instead of the school analogy, it could be the difference between being with a creepy pervert in a big room and being with a creepy pervert in a small room. Then again, maybe she should try to have more faith in people.
 
-	The microwave beeped, and she took out the pasta. After putting an abnormally high amount of Parmigiano-Reggiano (She refused to call it simply "Parmesan"), she sat down and tried to work. She was a graphic designer, and had to design a page layout for a 7th grade science book. She tried to work on it for a few minutes, but it was so boring that she was worried it might put her in more of a trance than the previous chat did. She also feared she would wake up four hours later knowing *far* too much about the various types of molecular bonds. It was getting late anyway, so she decided to get some sleep.
+  The microwave beeped, and she took out the pasta. After putting an abnormally high amount of Parmigiano-Reggiano (She refused to call it simply "Parmesan"), she sat down and tried to work. She was a graphic designer, and had to design a page layout for a 7th grade science book. She tried to work on it for a few minutes, but it was so boring that she was worried it might put her in more of a trance than the previous chat did. She also feared she would wake up four hours later knowing *far* too much about the various types of molecular bonds. It was getting late anyway, so she decided to get some sleep.
