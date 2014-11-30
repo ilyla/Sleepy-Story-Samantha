@@ -29,7 +29,7 @@ Is her one day off really the time to bother her with work stuff? She moved the 
 
 `*Samantha: Good morning to you too. What kinda website? I can do it for free if you just want something simple.*`
 
-`*Andrew: shouldnt be too hard. i just want something that says my name and has a picture of me and some information*`
+`*Andrew: shouldnt be too hard. i just want something that says my name and has a picture of me and some info*`
 
 `*Andrew: apparently it looks good on a college application*`
 
