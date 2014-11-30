@@ -1,7 +1,7 @@
 Sleepy Story
 ============
 
-By verin555, ScottButcher (that's me), and ElysianTail, with editing help from Hypnonymoose and Anonymoususer2
+By verin555, ScottButcher (that's me), and ElysianTail, with editing help from Hypnonymoose and Anonymoususer2.
 
 This is a story that is hopefully going to be uploaded on [MCStories](http://www.mcstories.com/). 
 It is in reality a thinly veiled advertisement for [Sleepychat](http://www.sleepychat.com/), a chatting site for hypnotists and subjects, which needs more love.
