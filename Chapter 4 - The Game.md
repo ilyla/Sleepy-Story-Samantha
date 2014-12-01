@@ -46,11 +46,11 @@ I never go to Tim Horton's, so I apologize if this depiction is not realistic
 
   She stumbled backwards, surprised by the cashier just asking her like that. After a moment, she realized that the man actually had said "What would you like to order today." She felt a little tingling of arousal, but it was faint.
 
-  "Uh, just a cappuccino. Oh yeah, and a bagel belt."
+  "Uh, just a latte. Oh yeah, and a bagel belt."
 
-  "That'll be $4.20" 
+  "That'll be $5.49"
 
-  She handed him a $5 bill and took her change. She went to one of the tables to eat her food, and to think. 10 minutes later, having accomplished the former but not made much progress on the latter, she went to work.
+  She handed him a $10 bill and took her change. She went to one of the tables to eat her food, and to think. 10 minutes later, having accomplished the former but not made much progress on the latter, she went to work.
 
   She hated her boss, Steven. He was always hitting on her. and checking her out. And worst of all, he always made some kind of innuendo when she came in. When she entered the office he looked her up and down and said "Do you want to come to my room and fuck?"
 
