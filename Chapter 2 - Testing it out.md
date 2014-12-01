@@ -1,4 +1,4 @@
-When it comes to hypnosis, Samantha is a natural. Some people have a much easier time with it than others. That's life for you, it's never fair. Although, if you find that you have trouble being hypnotized, do not despair. Pretty much everybody can become a great subject through practice. 
+When it comes to hypnosis, Samantha is a natural. Some people have a much easier time with it than others. (Although, if you find that you have trouble being hypnotized, do not despair. Pretty much everybody can become a great subject through practice. Some people just take more practice than others)
 
 ------------
 
@@ -225,3 +225,7 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 
 
   Samantha closed the browser tab, but remained in her seat. For a moment, she almost had trouble thinking straight. *Had he really hypnotized me?* She knew he had, logically, but it felt like the rest of her mind was having trouble catching up. Just the thought of being hypnotized gave her the greatest feeling she'd felt in a long time. She still couldn't believe it. She looked down to the clothes now on the floor, and that simple action sent another wave of sensations crawling up her spine. Deep in her thoughts, she almost didn't catch the second, more intense growl that came from her stomach.
+
+------------
+
+  My email is <scottcbutcher63@gmail.com>. I like hypnotizing people. I might hypnotize you if you ask :)

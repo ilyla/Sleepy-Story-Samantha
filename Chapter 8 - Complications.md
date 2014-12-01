@@ -66,11 +66,11 @@ After a few seconds he looked up at her, smiled, and waved her in, saying, "I'm 
 
 As she drank and cooled down a bit, Andrew began talking again. "So, I was thinking it should have, like, a blue banner at the top with a picture of me, and my name right below it, and then below that it looks like a tan-ish fabric and it has my GPA and--"
 
-"Hold on." What's he even talking about? "First of, a 'hello' would be nice. Secondly, if you want a super fancy website like that... Well, there's more to it than drawing ideas on a piece of paper. You have to actually write the thing. With computer words." He looked unimpressed. "I can set you up with a simple, free host kinda deal, but you're not going to have that much control over it."
+"Hold on." *What's he even talking about? A hello would be nice.* "If you want a super fancy website like that... Well, there's more to it than drawing ideas on a piece of paper. You have to actually write the thing. With computer words." He looked unimpressed. "I can set you up with a simple, free host kinda deal, but you're not going to have that much control over it."
 
 Realization dawned on him, and he seemed almost heartbroken at the thought, as if all his dreams were crushed. After a moment of scrambling, he held up a sketch he had drawn of what he wanted his site to look like. "How much of this do you think will be possible?"
 
-"Well, I'm not really sure," she said, "What we should do is look through the themes on Google Sites and you can find one you li--"
+*I could be playing minecraft right now instead of explaining this to him*. "Well, I'm not really sure," she said, "What we should do is look through the themes on Google Sites and you can find one you li--"
 
 "Heyo, whuddup, Sam!" there came a mighty shout from upstairs, making both Samantha and Andrew jump. 16 year old Rebecca zipped down the large staircase along the rail and hugged Samantha, almost dropping her to the ground.
 
