@@ -48,7 +48,7 @@ I never go to Tim Horton's, so I apologize if this depiction is not realistic
 
   "Uh, just a cappuccino. Oh yeah, and a bagel belt."
 
-  "That'll be $2.29"
+  "That'll be $4.20" 
 
   She handed him a $5 bill and took her change. She went to one of the tables to eat her food, and to think. 10 minutes later, having accomplished the former but not made much progress on the latter, she went to work.
 
