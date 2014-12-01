@@ -104,7 +104,7 @@
 `*ElysianTail: Oh, please call me Ely! Everyone else does, and you're very welcome :)*`
 
 
-  Samantha disconnected from the room, and then laid back into her chair, unable and unwilling to move anymore. And then she remembered something about the shorthand her partner called himself, Ely. Where had she heard that name before? *Ah well, it'll come to me*. Something struck her as strange about that chat, but she couldn't put her finger in it. She went back to the sleepychat main page, and noticed a button she hadn't bothered with before, "Join the big group chat". She clicked it, and it took her to a new chat page.
+  Samantha disconnected from the room, and then laid back into her chair, unable and unwilling to move anymore. And then she remembered something about the shorthand her partner called himself, Ely. Where had she heard that name before? *Ah well, it'll come to me*. Something struck her as strange about that chat, but she couldn't put her finger in it. She went back to the Sleepychat main page, and noticed a button she hadn't bothered with before, "Join the big group chat". She clicked it, and it took her to a new chat page.
 
   Samantha disconnected from the room, and then laid back into her chair, unable and unwilling to move anymore. And then she remembered something about the shorthand she just called her partner, Ely. Where had she heard that name before? 
 

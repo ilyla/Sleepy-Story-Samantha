@@ -1,4 +1,4 @@
-When it comes to hypnosis, Samantha is a natural. Some people have a much easier time with it than others. That's life for you, it's never fair. Although, if you find that you have trouble being hypnotied, do not dispair. Pretty much everybody can become a great subject through practice. 
+When it comes to hypnosis, Samantha is a natural. Some people have a much easier time with it than others. That's life for you, it's never fair. Although, if you find that you have trouble being hypnotized, do not despair. Pretty much everybody can become a great subject through practice. 
 
 ------------
 
@@ -40,7 +40,7 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 `*The_Id_Monster: I'll keep quiet then. Have fun!*`
 
 
-  She opened Google Chrome and went to sleepychat.com. She was immediately presented with a box with the title "Welcome to sleepychat". Below this was a simple form asking for a username, gender, role, and whether or not the user wanted to roleplay. She filled out all the information, and clicked "start matchmaking" at the bottom. No later than she had clicked, she was connected to "ScottB".
+  She opened Google Chrome and went to Sleepychat.com. She was immediately presented with a box with the title "Welcome to Sleepychat". Below this was a simple form asking for a username, gender, role, and whether or not the user wanted to roleplay. She filled out all the information, and clicked "start matchmaking" at the bottom. No later than she had clicked, she was connected to "ScottB".
 
 
 `4:49:30 pm: [INFO] Hi there, SamanthaIAm! You're now connected to the server.`
@@ -122,7 +122,7 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 `*SamanthaIAm: ok*`
 
 
-  She kept tracing, and she was getting more and more into it, focusing more and more on the tracing. In the next instant, something felt different. She felt like she just had a good night’s rest: wide awake, relaxed, and yet somehow energetic, and no longer tracing shapes with her toes.
+  She kept tracing, and she was getting more and more into it, focusing more and more on the tracing. In the next instant, something felt different. She felt like she just had a good night's rest: wide awake, relaxed, and yet somehow energetic, and no longer tracing shapes with her toes.
 
 
 `*ScottB: How do you feel?*`
@@ -179,7 +179,7 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 
 `*ScottB: Blue with a yellow batman symbol*`
 
-`*SamanthaIAm: What no way! That’s so cool!*`
+`*SamanthaIAm: What no way! That's so cool!*`
 
 `*ScottB: Thank you :)*`
 
@@ -212,7 +212,7 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 `*ScottB: That tends to happen.*`
 
 
-  Samantha looked at the clock. “Holy crap, where did the time go,” she asked herself. She had started at 5:04, and it was already 6:12. Not only that, but her stomach began to growl.
+  Samantha looked at the clock. "Holy crap, where did the time go," she asked herself. She had started at 5:04, and it was already 6:12. Not only that, but her stomach began to growl.
 
 
 `*SamanthaIAm: Wow... I uhh... I need to go. I just realized how hungry I am :)*`
@@ -224,4 +224,4 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 `6:12:46 pm: [INFO] SamanthaIAm has left.`
 
 
-  Samantha closed the browser tab, but remained in her seat. For a moment, she almost had trouble thinking straight. *Had he really hypnotized me?* She knew he had, logically, but it felt like the rest of her mind was having trouble catching up. Just the thought of being hypnotized gave her the greatest feeling she’d felt in a long time. She still couldn't believe it. She looked down to the clothes now on the floor, and that simple action sent another wave of sensations crawling up her spine. Deep in her thoughts, she almost didn't catch the second, more intense growl that came from her stomach.
+  Samantha closed the browser tab, but remained in her seat. For a moment, she almost had trouble thinking straight. *Had he really hypnotized me?* She knew he had, logically, but it felt like the rest of her mind was having trouble catching up. Just the thought of being hypnotized gave her the greatest feeling she'd felt in a long time. She still couldn't believe it. She looked down to the clothes now on the floor, and that simple action sent another wave of sensations crawling up her spine. Deep in her thoughts, she almost didn't catch the second, more intense growl that came from her stomach.

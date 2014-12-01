@@ -1,8 +1,8 @@
-I never go to Tim Hortons, so I apologize if this depiction is not realistic
+I never go to Tim Horton's, so I apologize if this depiction is not realistic
 
 ------------
 
-  Samantha awoke the next day in a jumble of sheets and comforter, two of her three pillows on the floor halfway across the room. At first, she just laid there, eyes closed, letting herself come to. Lifting her arm from where it hang off the bed, she openned her eyes to find her smooth, red hair strewn across her face. Removing the hair, she took a deep breath in, held it, and stretched both her arms, and her legs. Her last pillow fell off the bed. And as she sat up, her eyes still only half open, she realized that she had been sleeping with her feet near her headboard, completely upside own from her normal position. A moment later, an alert rang from her phone. It was her friend. She had to reach to grab her phone from it's charger, and in doing so she realized she was completely nude, with her pagamas and underwear piled up on the floor next to her. *Now how did that happen?* She instincively covered up with the bedsheet, and grabbed her phone from its spot on the floor. 
+  Samantha awoke the next day in a jumble of sheets and comforter, two of her three pillows on the floor halfway across the room. At first, she just laid there, eyes closed, letting herself come to. Lifting her arm from where it hang off the bed, she opened her eyes to find her smooth, red hair strewn across her face. Removing the hair, she took a deep breath in, held it, and stretched both her arms, and her legs. Her last pillow fell off the bed. And as she sat up, her eyes still only half open, she realized that she had been sleeping with her feet near her headboard, completely upside own from her normal position. A moment later, an alert rang from her phone. It was her friend. She had to reach to grab her phone from it's charger, and in doing so she realized she was completely nude, with her pajamas and underwear piled up on the floor next to her. *Now how did that happen?* She instinctively covered up with the bedsheet, and grabbed her phone from its spot on the floor. 
 
 
 `<6:56 AM>`
@@ -20,13 +20,13 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 `*The_Id_Monster: So what did you do? Did you orgasm? :3*`
 
 
-  Samantha was a little surpised by that last message. Her friend had never directly talked about erotic things like this before. She looked at the message again.
+  Samantha was a little surprised by that last message. Her friend had never directly talked about erotic things like this before. She looked at the message again.
 
 
 `*The_Id_Monster: So what did you do? Did you get hypnotized? :3
 
 
-  She had misread it, but something seemed off... Something had stirred inside of her, and made her feel... aroused? The feeling was extremely faint, so she dismissed it, and returned to the converstion.
+  She had misread it, but something seemed off... Something had stirred inside of her, and made her feel... aroused? The feeling was extremely faint, so she dismissed it, and returned to the conversation.
 
 
 `*Tweety44: I think I was, actually.*`
@@ -44,7 +44,7 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 
   "Would you like to have sex today?"
 
-  She stumbled backwards, suprised by the cashier just asking her like that. After a moment, she realized that the man actually had said "What would you like to order today." She felt a little tingling of arousal, but it was faint.
+  She stumbled backwards, surprised by the cashier just asking her like that. After a moment, she realized that the man actually had said "What would you like to order today." She felt a little tingling of arousal, but it was faint.
 
   "Uh, just a cappuccino. Oh yeah, and a bagel belt."
 
@@ -60,7 +60,7 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 
   "Oh, you know..." he said, while wiggling his eyebrows.
 
-  "Well, I've been having troble getting the Metallic Bonds section to layout properly. You see, I want to have it on the same page as the Ionic Bonds section, because they're related, but to do that I have to shrink down one of the charts to the right a tad to make more room, but if I do that then the page on Covalent Bonds-"
+  "Well, I've been having trouble getting the Metallic Bonds section to layout properly. You see, I want to have it on the same page as the Ionic Bonds section, because they're related, but to do that I have to shrink down one of the charts to the right a tad to make more room, but if I do that then the page on Covalent Bonds-"
 
   "Actually, I just remembered I have to do something. Maybe later, okay?"
 
@@ -68,15 +68,15 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 
   "That was hilarious. Let's just hope you you don't actually have to have sex with him later."
 
-  Her mind seemed to lag behind for a moment, and then she realized she actually said "Let's just hope you you don't actually have to chat with him later." Again, she felt a rush of arousal. She was getting a little tured on, but she didn't mind. 
+  Her mind seemed to lag behind for a moment, and then she realized she actually said "Let's just hope you you don't actually have to chat with him later." Again, she felt a rush of arousal. She was getting a little turned on, but she didn't mind. 
 
-  The rest of the day, she kept thinking people said something blatantly sexual, then realizing what they actually said, then feeling a rush of arousal. And every time, the rush was just a little bit greater. By the time she had to go home, she was very hot and bothered (in a good way). She didn't usually mastrubate, but she was thinking that she might have to before the day was out. On her way out, Heidi stopped her and said "Are you okay, Sam? You look... horny."
+  The rest of the day, she kept thinking people said something blatantly sexual, then realizing what they actually said, then feeling a rush of arousal. And every time, the rush was just a little bit greater. By the time she had to go home, she was very hot and bothered (in a good way). She didn't usually masturbate, but she was thinking that she might have to before the day was out. On her way out, Heidi stopped her and said "Are you okay, Sam? You look... horny."
 
   She waited a moment for her mind to realize what Heidi actually said.
 
   "Hello? Earth to Samantha, Earth to Samantha. I asked if anything was wrong, and said you look horny."
 
-  "What?" Then, before she could think, she said "No, I'm not. Why do you ask?" She felt her hornyness go up, a lot.
+  "What?" Then, before she could think, she said "No, I'm not. Why do you ask?" She felt her horniness go up, a lot.
 
   "Nevermind. Are you doing anything later today?"
 
@@ -86,9 +86,9 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 
   "I'll try, thanks."
 
-  She zipped home, put the 30 minute cake mix with some water and eggs, and threw it in the oven. She checked her email, but found it hard to concentrate given her arousal. Eventually she gave up, and jumped on the couch, ready to play a relaxing game of Minecraft. She booted up her Xbox and opened the game up. *Minecraft always puts me in a good mood* she thought, *and maybe it'll also make me less horny. I'll just play until the cake's ready, that should give me enough time to finish my house*. She open the game up and popped onto the world she was working on. She needed some glowstone for lighting, but the moment her left hand wasn't doing anything it shot between her legs and started rubbing. She pulled her hand away from what it was doing, and tried to focus on building. The moment she stopped paying attention, though, her hand went right back. *Quit playing with my pussy!* she thought, *That's odd, I usually don't use words like that*. She tried to ignore her vulgar inner monolog, and in doing so realized that her hand had gotten inside her panties. She felt another surge of hornyness, but tried to concentrate. Just as she was giving up keeping her hand away from her privates, the timer for the cake went off. She rinsed her hand off in the sink and put the cake on top of the stove to cool. Her left hand was rubbing in between her legs again, but she pulled it away so she could set a timer for 15 minutes. After that she would frost the cake and head to the party.
+  She zipped home, put the 30 minute cake mix with some water and eggs, and threw it in the oven. She checked her email, but found it hard to concentrate given her arousal. Eventually she gave up, and jumped on the couch, ready to play a relaxing game of Minecraft. She booted up her Xbox and opened the game up. *Minecraft always puts me in a good mood* she thought, *and maybe it'll also make me less horny. I'll just play until the cake's ready, that should give me enough time to finish my house*. She open the game up and popped onto the world she was working on. She needed some glowstone for lighting, but the moment her left hand wasn't doing anything it shot between her legs and started rubbing. She pulled her hand away from what it was doing, and tried to focus on building. The moment she stopped paying attention, though, her hand went right back. *Quit playing with my pussy!* she thought, *That's odd, I usually don't use words like that*. She tried to ignore her vulgar inner monologue, and in doing so realized that her hand had gotten inside her panties. She felt another surge of horniness, but tried to concentrate. Just as she was giving up keeping her hand away from her privates, the timer for the cake went off. She rinsed her hand off in the sink and put the cake on top of the stove to cool. Her left hand was rubbing in between her legs again, but she pulled it away so she could set a timer for 15 minutes. After that she would frost the cake and head to the party.
 
-  The 15 minutes went by pretty much the same as the last half hour had, with her playing minecraft and also with herself. She did get a call from a coworker asking her "Where would you like to be fucked," except he was really asking "Where would you like figure 3-5?" When the timer buzzed, she frosted the cake with 'Happy birthday Andrew,' changed into a nice dress, and headed off to the party.
+  The 15 minutes went by pretty much the same as the last half hour had, with her playing Minecraft and also with herself. She did get a call from a coworker asking her "Where would you like to be fucked," except he was really asking "Where would you like figure 3-5?" When the timer buzzed, she frosted the cake with 'Happy birthday Andrew,' changed into a nice dress, and headed off to the party.
 
   When she arrived she was given a friendly greeting from Andrew, who was greeting everyone at the door.
 
@@ -104,7 +104,7 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 
   "Yep," he said as his grandparents walked in.
 
-  He said "Hi, Grandma and Grandpa, glad you could come." She walked around the bend and sat her cake on the table, where all the food was laid out. She noticed that her hand was moving near her pussy, and definitely didn't want to start rubbing in front of the whole party. She hurried over to a chair and sat on her hands. Soon enough, Andrew's 19 year old sister Rebbeca sat down next to her. 
+  He said "Hi, Grandma and Grandpa, glad you could come." She walked around the bend and sat her cake on the table, where all the food was laid out. She noticed that her hand was moving near her pussy, and definitely didn't want to start rubbing in front of the whole party. She hurried over to a chair and sat on her hands. Soon enough, Andrew's 16 year old sister Rebecca sat down next to her. 
 
   "Hi Samantha, how's it going?" she asked.
 
@@ -114,7 +114,7 @@ I never go to Tim Hortons, so I apologize if this depiction is not realistic
 
   "Have you been doing anything fun recently," asked Samantha. She noticed that Rebbecca was wearing very revealing clothing, much more than her usual self. She had a short skirt, tight shirt with a low neckline, and she was obviously wearing a push up bra.
 
-  "Not really. I was chatting with some people on the internet the other day"
+  "Not really. I was chatting with some people on the Internet the other day"
 
   "Really? Who?"
 

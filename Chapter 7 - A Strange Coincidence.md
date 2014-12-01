@@ -109,7 +109,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 
 `*Hypnonymoose: You haven't seen anything yet*`
 
-`*SamIAm: I was tized by *scottb*. *`
+`*SamIAm: I was tized by *scottb*.*`
 
 `*SamIAM: Do you understand what that entails?*`
 
@@ -132,12 +132,12 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*Hypnonymoose: Couldn't hurt to try :)*`
 
 
-  Samantha shrugged and put a nightcore mix on. It was her favorite (mostly because it didn't have Angel With a Shotgun), and it started with a slowish one so that was good too. She switched back to sleepychat, exited for what was going to happen next.
+  Samantha shrugged and put a nightcore mix on. It was her favorite (mostly because it didn't have Angel With a Shotgun), and it started with a slowish one so that was good too. She switched back to Sleepychat, exited for what was going to happen next.
 
 
 `*SamIAm: My trigger is 'Hypnotime', do your worst*`
 
-`*Hypnonymoose: Before I do anything, could you answer this: Do you live in Califonia?*`
+`*Hypnonymoose: Before I do anything, could you answer this: Do you live in California?*`
 
 `*SamIAm: Uh yeah, I do actually*`
 
@@ -276,7 +276,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*Hypnonymoose: Oh nothing*`
 
 
-  Suddenly Samantha Felt that wave of sleepyness come over her, and her whole body became very relaxed. She felt herself deleting the conversation from her phone, and deciding not to think about it anymore. She was reading Hypnonymoose's words, but it didn't feel like she was consciously processing them, more like they were going staight into the back of her mind and she didn't even have to think about them. He asked her questions about herself, her fetishes, that kind of thing, which she answered without really thinking. He was telling her lot's of things, like things to dress, things to buy, how to speak, and other things. He was always making sure she was okay with it, though, and he made sure she wouldn't do anything bad just because he told her to. After a while, he said something about counting to 5 and becoming awake again
+  Suddenly Samantha Felt that wave of sleepiness come over her, and her whole body became very relaxed. She felt herself deleting the conversation from her phone, and deciding not to think about it anymore. She was reading Hypnonymoose's words, but it didn't feel like she was consciously processing them, more like they were going straight into the back of her mind and she didn't even have to think about them. He asked her questions about herself, her fetishes, that kind of thing, which she answered without really thinking. He was telling her lot's of things, like things to dress, things to buy, how to speak, and other things. He was always making sure she was okay with it, though, and he made sure she wouldn't do anything bad just because he told her to. After a while, he said something about counting to 5 and becoming awake again
 
 
 `*Hypnonymoose: 5*`
