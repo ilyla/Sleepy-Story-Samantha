@@ -41,11 +41,15 @@ All the little bits of foreshadowing I've been dropping along without really kno
 
 `6:58:59 am: [INFO] SamIAm♀↓ has joined.`
 
+`*JonSmisu: Hi!*`
+
 `*steampunkSage: That sounds nice Annie :3*`
 
 `*Lauralai kinda wants a revealing straight jacket, because a normal one would squeeze the daylights out of her chest xwx;*`
 
 `*ElysianTail-Senpai: Sleepychat is getting a twitter, woo!*`
+
+`*SamIAm: Hey JonSmisu*`
 
 `*sapere_aude: oooh, a twitter!*`
 
