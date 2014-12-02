@@ -157,7 +157,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 
 `*SamIAm: By the way, I wouldn't be against doing some subby changes that I wouldn't necessarily know about*`
 
-`*SamIAm: Everything I've done so far has been... well not exactly tame, I wouldn't mind being made to do or think stuff more... subby I guess?*`
+`*SamIAm: Everything I've done so far has been... well not exactly tame, I wouldn't mind being made to do or think stuff more... subby I guess? Like being a good girl and things like that*`
 
 `*SamIAm: God I'm bad at explaining things*`
 

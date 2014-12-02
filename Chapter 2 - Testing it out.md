@@ -69,7 +69,7 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 
 `*SamanthaIAm: Hypnotized. It would be my first time, actually*`
 
-`*ScottB: Ah, fun*`
+`*ScottB: Ah, fun. I sometimes do kinda weird/extreme stuff (if the 'tee wants), but since it's your first time I'll keep it slow*`
 
 `*ScottB: Well, what are your limits?*`
 
@@ -229,3 +229,5 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 ------------
 
   My email is <scottcbutcher63@gmail.com>. I like hypnotizing people. I might hypnotize you if you ask :)
+
+  By the way, 'tee is shorthand for hypnotee I got from an adorable sub on Omegle, in case you were confused.
