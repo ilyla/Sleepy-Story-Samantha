@@ -10,7 +10,7 @@ Jolly in this story is made up, and he is not a role model. He makes several mis
 
 ------------
 
-  When Samantha woke up, she was nude. After glancing around, she found her clothes piled up on the floor next to her bed. *That was a weird dream*, she thought, *It's odd that I can remember it so clearly*. She shrugged and picked up some of her clothes. She saw that her phone's notification light was blinking, and turned it on to see a new Skype message.
+  When Samantha woke up, she was nude. That was a weird dream, and it was odd that she could remember it so clearly. After glancing around, she found her clothes piled up on the floor next to her bed, as usual. She shrugged and picked up some of her clothes. She saw that her phone's notification light was blinking, and turned it on to see a new Skype message.
 
 
 `*The_Id_Monster: Heya I heard about you on Sleepychat last nite!*`
@@ -278,7 +278,7 @@ Jolly in this story is made up, and he is not a role model. He makes several mis
 `*Jolly: Slavegirl, why don't you introduce yourself?*`
 
 
-  Her hands moved on their own, typing a kind introduction. *What's going on?*
+  Her hands moved on their own, typing a kind introduction. What was going on?
 
 
 `*SamIAm: Hi I'm slavegirl. How are you?*`
@@ -611,4 +611,4 @@ Jolly in this story is made up, and he is not a role model. He makes several mis
 `*SamIAm: Okay*`
 
 
-  She left sleepychat, and went to bed, noticing that she was her old clothes instead of an 8 inch skirt and a fishnet top. She brushed her teeth, changed into her pajamas, and crawled into bed. *Yep, definitely still wearing my pajamas*, she thought, *I wonder when I'll take them off*. She felt so nice in the warm comforter that she went to sleep just a few seconds later 
+  She left sleepychat, and went to bed, noticing that she was her old clothes instead of an 8 inch skirt and a fishnet top. She brushed her teeth, changed into her pajamas, and crawled into bed. She was definitely still wearing her pajamas, and she wondered when she would take them off. Although she felt so nice in the warm comforter that she went to sleep just a few seconds later.

@@ -75,11 +75,11 @@ Sometimes, two people editing a story just isn't enough.
 
   As she drank and cooled down a bit, Andrew began talking again. "So, I was thinking it should have, like, a blue banner at the top with a picture of me, and my name right below it, and then below that it looks like a tan-ish fabric and it has my GPA and--"
 
-  "Hold on." *What's he even talking about? A hello would be nice.* "If you want a super fancy website like that... Well, there's more to it than drawing ideas on a piece of paper. You have to actually write the thing. With computer words." He looked unimpressed. "I can set you up with a simple, free host kinda deal, but you're not going to have that much control over it."
+  "Hold on." What's he even talking about? A hello would be nice. "If you want a super fancy website like that... Well, there's more to it than drawing ideas on a piece of paper. You have to actually write the thing. With computer words." He looked unimpressed. "I can set you up with a simple, free host kinda deal, but you're not going to have that much control over it."
 
   Realization dawned on him, and he seemed almost heartbroken at the thought, as if all his dreams were crushed. After a moment of scrambling, he held up a sketch he had drawn of what he wanted his site to look like. "How much of this do you think will be possible?"
 
-  *I could be playing minecraft right now instead of explaining this to him*. "Well, I'm not really sure," she said, "What we should do is look through the themes on Google Sites and you can find one you li--"
+  She could be playing minecraft right now instead of explaining this to him, such a pain. "Well, I'm not really sure," she said, "What we should do is look through the themes on Google Sites and you can find one you li--"
 
   "Heyo, whuddup, Sam!" there came a mighty shout from upstairs, making both Samantha and Andrew jump. 16 year old Rebecca zipped down the large staircase along the rail and hugged Samantha, almost dropping her to the ground.
 
@@ -105,9 +105,9 @@ Sometimes, two people editing a story just isn't enough.
 
   She walked back down to the kitchen, where Andrew was waiting patently. 
 
-  "Ah, you're back. Okay, let's go on that Google Websites thing you were talking about to see what we can do," he said, staring at her tits for the entire time it took him to say the sentence. *I'm glad he's coming to his senses,* she thought.
+  "Ah, you're back. Okay, let's go on that Google Websites thing you were talking about to see what we can do," he said, staring at her tits for the entire time it took him to say the sentence. She was glad he was coming to his senses, at least.
 
-  "Good idea." They walked over to his computer and sat down, as he swiped his pointer finger down the fingerprint scanner. He opened up Internet Explorer and went to Google Sites, where they looked at different themes for a few minutes. 
+  "Good idea." They walked over to his computer and sat down, as he swiped his pointer finger down the fingerprint scanner. He opened up Internet Explorer and went to Google Sites, where they looked at different themes for a few minutes. She heard a toilet flushing upstairs, which must have been Rebecca finishing going to the bathroom. 
 
   "None of these are any good, are there any other sites like this?"
 

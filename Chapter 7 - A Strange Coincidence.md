@@ -2,7 +2,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 
 ------------
 
-  Samantha woke up and glanced at the clock on her phone. *Huh*, she thought, *6:42? I'm up early today. Well, I guess that means I can spend some time on Sleepychat before I go to work*. She put on some clothes (She was nude, and she found that fact equal parts arousing and annoying), brushed her teeth, ate some cereal, and popped on her laptop. She was planning to answer emails first, but she still had Hypnohub and Sleepychat up from the day before, so she just went straight to that. *Oh neat, they changed the UI.* Instead of printing a list of users when she joined, there was a sidebar on the side that listed everyone's names. 
+  Samantha woke up and glanced at the clock on her phone. *Huh*, she thought, *6:42? I'm up early today. Well, I guess that means I can spend some time on Sleepychat before I go to work*. She put on some clothes (She was nude, and she found that fact equal parts arousing and annoying), brushed her teeth, ate some cereal, and popped on her laptop. She was planning to answer emails first, but she still had Hypnohub and Sleepychat up from the day before, so she just went straight to that. She noticed they had changed the UI, instead of printing a list of users when she joined, there was a column of text on the side that listed everyone's names. 
 
 `*?↕Perky*`
 `*♂↑HypnoticPorcupine87*`
@@ -210,7 +210,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*Rebecca: Wazzup?*`
 
 
-  It was very odd for Rebecca to send a message like that, she noticed, she was usually very to the point with her texts, preferring to talk on the phone when she just wanted to chat. *Hmmm*, she thought, and typed a message to Hypnonymoose. She wasn't really thinking about what she was saying, just typing with one hand and taking off her pants with the other. After glancing at the screen, she decided to send Rebecca a message.
+  It was very odd for Rebecca to send a message like that, she noticed, she was usually very to the point with her texts, preferring to talk on the phone when she just wanted to chat. She didn't really know what to make of that, and typed a message to Hypnonymoose without thinking. She wasn't really thinking about what she was saying, just typing with one hand and taking off her pants with the other. After glancing at the screen, she decided to send Rebecca a message.
 
 
 `*Samantha: Not much, u?*`
