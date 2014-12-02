@@ -23,7 +23,7 @@ Sometimes, two people editing a story just isn't enough.
 
   Samantha snapped up in her bed, breathing heavily. She looked around her room. Everything was normal. She was normal. And naked. Again. The clothes she went to bed with were folded in a neat pile next to the bed. And there was a sticky mess between her legs. What did she dream about? Something about a party... some friends? She shook her head. It's probably not important anyway.
 
-  She got up from bed, stretching, and went into the shower. She turned on the warm water and let it wash over her, waking her body up. She found herself smiling to herself as the hot water poured over her. She was always a morning person. She started soaping herself up, her arms, chest, belly, and down to her va--*pussy*. She blinked in surprise. Where did that word come from? She always uses the word v--*pussy*. Oh, that's right. Her *pussy* (yes, that seems right) was still very sensitive. Was it that dream? She shook her head again, washed the soap away, and toweled herself off. She had the whole day, she wasn't about to waste it idling, thinking about weird (*sexy*) dreams.
+  She got up from bed, stretching, and went into the shower. She turned on the warm water and let it wash over her, waking her body up. She found herself smiling to herself as the hot water poured over her. She was always a morning person. She started soaping herself up, her arms, chest, belly, and down to her va-- **pussy**. She blinked in surprise. Where did that word come from? She always uses the word va-- **pussy**. Oh, that's right. Her **pussy** (yes, that seems right) was still very sensitive. Was it that dream? She shook her head again, washed the soap away, and toweled herself off. She had the whole day, she wasn't about to waste it idling, thinking about weird (*sexy*) dreams.
 
   She put on some old baggy morning clothes and went downstairs to make scrambled eggs for breakfast. As she prepared her eggs, she found herself humming some beautiful tune to herself, repeating over and over. She didn't think she'd ever heard that tune before, but it was beautiful, and relaxing, so she sang it some more. It was so easy to just relax into making the eggs, into the tune, maybe she sang some words, hardly even noticing, probably not important. It was a very nice song to sing to herself whenever she was alone. It made her feel good and happy, a bit absentminded, like she didn't have a care in the world. It was very easy to get lost in, just singing it over and over...
 
@@ -33,7 +33,7 @@ Sometimes, two people editing a story just isn't enough.
 `*Andrew: i need to make a website for college applications. do u think u could design one for me?*`
 
 
-  Is her one day off really the time to bother her with work stuff? She moved the eggs to a plate, irritated, and toyed with the idea of ignoring him and trying to remember her little song again (*like a good girl*), but ruled against it. He's still family. She took a spoonful of egg and wrote back:
+  Is her one day off really the time to bother her with work stuff? She moved the eggs to a plate, irritated, and toyed with the idea of ignoring him and trying to remember her little song again (**like a good girl**), but ruled against it. He's still family. She took a spoonful of egg and wrote back:
 
 
 `*Samantha: Good morning to you too. What kinda website? I can do it for free if you just want something simple.*`
@@ -61,11 +61,11 @@ Sometimes, two people editing a story just isn't enough.
 
   She paused and tried to remember what happened on the way back, but something told her it's nothing to worry about, so she just stopped and smiled. She put the groceries where groceries go, barely even noticing the few new sex toys she seemingly picked up on the way home. But that's probably nothing to worry about either, so she hid them at the bottom of her night-stand drawer.
 
-  She was about to sit down and log onto Sleepychat again *having finished her task like a good girl*, but then she saw the time, and sighed. She has to go do the thing for Andrew now. Might as well get it over with it so she can come back home *and be rewarded for being a good girl*. She took her phone and drove over to Andrew's.
+  She was about to sit down and log onto Sleepychat again **having finished her task like a good girl**, but then she saw the time, and sighed. She has to go do the thing for Andrew now. Might as well get it over with it so she can come back home **and be rewarded for being a good girl**. She took her phone and drove over to Andrew's.
 
 * * * * *
 
-  She rang the doorbell and waited, when she suddenly noticed she forgot to wear a bra. Her big brea-- *tits* were kept from the world by nothing more than her too-small tank top, and that didn't do much to hide her nipples pointing angrily at the door. This isn't something she'd ever forget, but apparently she did today. She moved her hand up to correct her shirt to cover as much of her as it could, and accidentally brushed against a nipple.
+  She rang the doorbell and waited, when she suddenly noticed she forgot to wear a bra. Her big brea-- **tits** were kept from the world by nothing more than her too-small tank top, and that didn't do much to hide her nipples pointing angrily at the door. This isn't something she'd ever forget, but apparently she did today. She moved her hand up to correct her shirt to cover as much of her as it could, and accidentally brushed against a nipple.
 
   She gasped. Fuck, did that feel good. Her hand moving almost on its own, she stroked it again. And again. Then pinched it lightly, and whimpered. It didn't normally feel this good, what was going on with--
 
@@ -97,11 +97,11 @@ Sometimes, two people editing a story just isn't enough.
 
   "Okay, fine, Rebecca," he said, but he smiled victoriously, almost evilly. Then he innocently asked, "Has anything else been going on lately?"
 
-  Samantha felt a little tingling in her *horny, dampening, aching pussy*. She tried to ignore it, but over the next couple seconds it grew and grew, making her hornier and hornier, and she knew that in a minute or two she was going to rip her clothes off and grope, pinch, rub, anything to get off, even if she had to do it on the floor in front of Andrew. Her left hand already started to move towards her *wet pussy*.
+  Samantha felt a little tingling in her **horny, dampening, aching pussy**. She tried to ignore it, but over the next couple seconds it grew and grew, making her hornier and hornier, and she knew that in a minute or two she was going to rip her clothes off and grope, pinch, rub, anything to get off, even if she had to do it on the floor in front of Andrew. Her left hand already started to move towards her **wet pussy**.
 
   Next to her, Rebecca slurred, "Sorry, I have to go to the bathroom," and ran off. Andrew just nodded and looked back at Samantha, clearly pleased with the result. "So, as I was saying--"
 
-  "Hey, actually, I kinda do too," she said, turning away from a disbelieving Andrew and ran to the nearest bathroom. She practically ran to get there, and she almost forgot to lock the door on her way in. She was in too much of a rush to get her shorts completely off, so she just pulled them down around her ankles. She stuck her hand inside her panties, and began to rub herself. She noticed a shadow move under the door but payed it no mind as she continued to touch her va-- *pussy* with one hand and grope her br-- *tits* with the other. After a minute she came, and although she had tried to remain silent a moan escaped her lips. She looked down. There was some moistness on her panties, but she had been quick enough that nothing too noticeable had come of it. She pulled her pants back up and adjusted her shirt (her lack of a bra made that an erotic experience of its own), then flushed the toilet and ran the tap in case Andrew was listening.
+  "Hey, actually, I kinda do too," she said, turning away from a disbelieving Andrew and ran to the nearest bathroom. She practically ran to get there, and she almost forgot to lock the door on her way in. She was in too much of a rush to get her shorts completely off, so she just pulled them down around her ankles. She stuck her hand inside her panties, and began to rub herself. She noticed a shadow move under the door but payed it no mind as she continued to touch her va-- **pussy** with one hand and grope her br-- **tits** with the other. After a minute she came, and although she had tried to remain silent a moan escaped her lips. She looked down. There was some moistness on her panties, but she had been quick enough that nothing too noticeable had come of it. She pulled her pants back up and adjusted her shirt (her lack of a bra made that an erotic experience of its own), then flushed the toilet and ran the tap in case Andrew was listening.
 
   She walked back down to the kitchen, where Andrew was waiting patently. 
 
@@ -145,7 +145,7 @@ Sometimes, two people editing a story just isn't enough.
 
   "Yes, but the text being purple isn't going to be a make or break kinda thing."
 
-  He looked at her like she was crazy, then turned around a locked the door. He seemed conflicted for a moment, then said "Has anything else been going on lately?" Once again, she felt that arousal grow inside her va-- *pussy*, and new that she was going to masturbate in a few minutes no matter what. She tried to avoid breathing more deeply than normal, then moved for the door. Andrew blocked it.
+  He looked at her like she was crazy, then turned around a locked the door. He seemed conflicted for a moment, then said "Has anything else been going on lately?" Once again, she felt that arousal grow inside her va-- **pussy**, and new that she was going to masturbate in a few minutes no matter what. She tried to avoid breathing more deeply than normal, then moved for the door. Andrew blocked it.
 
   "I have to go to the bathroom."
 
@@ -159,4 +159,4 @@ Sometimes, two people editing a story just isn't enough.
 
   "Will you finish my website?"
 
-  She ran forward and tried to shove him out of the way, but he pushed back on her. Unfortunately, the spot he chose to push against was her left breast. The new sensitivity in her nipples completely distracted her, and she fell backwards onto the couch. She didn't even care that she was in front of Andrew anymore, just that she came. She groped her breasts, and was about to move her hand onto her *dripping pussy* when Andrew walked over and gave one of her nipples (that was poking through her tight shirt) a squeeze. Just like that, she orgasmed, crying out. Andrew seemed amazed at what he just did. After a few moments she realized that Andrew was no longer guarding the door and bolted out, running into her car as fast as she could, her face hot with embarrassment. Andrew wasn't even chasing her.
+  She ran forward and tried to shove him out of the way, but he pushed back on her. Unfortunately, the spot he chose to push against was her left breast. The new sensitivity in her nipples completely distracted her, and she fell backwards onto the couch. She didn't even care that she was in front of Andrew anymore, just that she came. She groped her breasts, and was about to move her hand onto her **dripping pussy** when Andrew walked over and gave one of her nipples (that was poking through her tight shirt) a squeeze. Just like that, she orgasmed, crying out. Andrew seemed amazed at what he just did. After a few moments she realized that Andrew was no longer guarding the door and bolted out, running into her car as fast as she could, her face hot with embarrassment. Andrew wasn't even chasing her.
