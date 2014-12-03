@@ -1,7 +1,7 @@
 Sleepy Story
 ============
 
-Primarially written by Scott Butcher (that's me), but I've had a lot of help from verin555 (who wrote the first chapter), ElysianTail (Who wrote Chapter 5), and a *lot* of editing help from Hypnonymoose and Anonymoususer2.
+Primarily written by Scott Butcher (that's me), but I've had a lot of help from verin555 (who wrote the first chapter), ElysianTail (Who wrote Chapter 5), and a *lot* of editing help from Hypnonymoose and Anonymoususer2.
 
 This is a story that is hopefully going to be uploaded on [MCStories](http://www.mcstories.com/). 
 It is in reality a thinly veiled advertisement for [Sleepychat](http://www.sleepychat.com/), a chatting site for hypnotists and subjects, which needs more love.
@@ -16,4 +16,4 @@ Also, not sure how the others have been picturing her but I (Scott) imagine her 
 
 [Image by Zko](http://hypnohub.net/post/show/12153?pool_id=150)
 
-Note: The story is currently a work in progress, but you can download the .md (just rename them to .txt) files up at the top. If you see any problems (or have any ideas), send us an email, use github to submit an issue, or fork it if you're feeling adventurous :)
+Note: The story is currently a work in progress, but you can download the .md (just rename them to .txt) files up at the top, or click 'Veiw on Github' and then click the one you want to read. If you see any problems (or have any ideas), send us an email, use github to submit an issue, or fork it if you're feeling adventurous :)
