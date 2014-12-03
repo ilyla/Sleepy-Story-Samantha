@@ -577,4 +577,4 @@ I'M SERIOUS
 
 4b) learn how to draw so I can make Samantha send pics
 
-5) 
+5) Learn how to ask Anon if he can draw so I can make Samantha send pics
