@@ -4,34 +4,34 @@ All the little bits of foreshadowing I've been dropping along without really kno
 
   Samantha woke up and glanced at the clock on her phone. *Huh*, she thought, *6:42? I'm up early today. Well, I guess that means I can spend some time on Sleepychat before I go to work*. She put on some clothes (She was nude, and she found that fact equal parts arousing and annoying), brushed her teeth, ate some cereal, and popped on her laptop. She was planning to answer emails first, but she still had Hypnohub and Sleepychat up from the day before, so she just went straight to that. She noticed they had changed the UI, instead of printing a list of users when she joined, there was a column of text on the side that listed everyone's names. 
 
-`*?↕Perky*`
-`*♂↑HypnoticPorcupine87*`
-`*♂↑flimflamwammyjam*`
-`*♂↑JonSmisu*`
-`*♀↓Vim*`
-`*♂↑Emacs*`
-`*♂↕~Alex~*`
-`*♀↓NikkiY*`
-`*♀↑MistressY*`
-`*♀↓Nope-balloon*`
-`*♂↕PulseGuy*`
-`*♀↓tiffany*`
-`*♀↕Rebeka*`
-`*♂↕w*`
-`*?↕steampunkSage*`
-`*♂↓obliviondoll*`
+`* ?↕Perky*`
+`* ♂↑HypnoticPorcupine87*`
+`* ♂↑flimflamwammyjam*`
+`* ♂↑JonSmisu*`
+`* ♀↓Vim*`
+`* ♂↑Emacs*`
+`* ♂↕~Alex~*`
+`* ♀↓NikkiY*`
+`* ♀↑MistressY*`
+`* ♀↓Nope-balloon*`
+`* ♂↕PulseGuy*`
+`* ♀↓tiffany*`
+`* ♀↕Rebeka*`
+`* ♂↕w*`
+`* ?↕steampunkSage*`
+`* ♂↓obliviondoll*`
 `*M♂↑BurntPenny*`
-`*♀↓CloudAmy*`
-`*♀↓Annie*`
-`*♂↓Rival*`
+`* ♀↓CloudAmy*`
+`* ♀↓Annie*`
+`* ♂↓Rival*`
 `*M♂↑Hypnonymoose*`
-`*♂↓Haru*`
-`*♂↑knowing-smile*`
-`*♀↓Lauralai*`
-`*♀↓flowerbomb*`
-`*♂↓Darksideofthemind*`
-`*♀↓GirlDroneMkIV*`
-`*♂↓mmmm*`
+`* ♂↓Haru*`
+`* ♂↑knowing-smile*`
+`* ♀↓Lauralai*`
+`* ♀↓flowerbomb*`
+`* ♂↓Darksideofthemind*`
+`* ♀↓GirlDroneMkIV*`
+`* ♂↓mmmm*`
 `*A♀↕ElysianTail-Senpai*`
 `*M♂↑ScottB*`
 
@@ -210,7 +210,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*Rebecca: Wazzup?*`
 
 
-  It was very odd for Rebecca to send a message like that, she noticed, she was usually very to the point with her texts, preferring to talk on the phone when she just wanted to chat. She didn't really know what to make of that, and typed a message to Hypnonymoose without thinking. She wasn't really thinking about what she was saying, just typing with one hand and taking off her pants with the other. After glancing at the screen, she decided to send Rebecca a message.
+  It was very odd for Rebecca to send a message like that, she was usually very to the point with her texts. She usually preferred to talk on the phone when she just wanted to chat. She shrugged and typed a message to Hypnonymoose without thinking. She wasn't really thinking about what she was saying, just typing with one hand and taking off her pants with the other. After glancing at the screen, she decided to send Rebecca a message.
 
 
 `*Samantha: Not much, u?*`
@@ -280,7 +280,7 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*Hypnonymoose: Oh nothing*`
 
 
-  Suddenly Samantha Felt that wave of sleepiness come over her, and her whole body became very relaxed. She felt herself deleting the conversation from her phone, and deciding not to think about it anymore. She was reading Hypnonymoose's words, but it didn't feel like she was consciously processing them, more like they were going straight into the back of her mind and she didn't even have to think about them. He asked her questions about herself, her fetishes, that kind of thing, which she answered without really thinking. He was telling her lot's of things, like things to dress, things to buy, how to speak, and other things. He was always making sure she was okay with it, though, and he made sure she wouldn't do anything bad just because he told her to. After a while, he said something about counting to 5 and becoming awake again
+  Suddenly Samantha Felt that wave of sleepiness come over her, and her whole body became very relaxed. She felt herself deleting the conversation from her phone, and deciding not to think about it anymore. She was reading Hypnonymoose's words, but it didn't feel like she was consciously processing them, more like they were going straight into the back of her mind and she didn't even have to think about them. He asked her questions about herself, her fetishes, that kind of thing, which she answered without really thinking. He was telling her lots of things, like things to dress, things to buy, how to speak, and other things. He was always making sure she was okay with it, though, and he made sure she wouldn't do anything bad just because he told her to. After a while, he said something about counting to 5 and becoming awake again
 
 
 `*Hypnonymoose: 5*`
@@ -294,4 +294,4 @@ All the little bits of foreshadowing I've been dropping along without really kno
 `*SamIAm: Evil boy*`
 
 
-  Samantha looked at the time, surprised to see that 45 minutes had already passed. If she left now she would still be late for work, but not late enough for it to be too big of a problem. She didn't notice anything odd that day, but that was because the suggestions wouldn't kick in until the next day...
+  Samantha looked at the time, surprised to see that 45 minutes had already passed. If she left now she would still be late for work, but not late enough for it to be too big of a problem. She didn't notice anything odd that day, but the suggestions might not have kicked in yet.

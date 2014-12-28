@@ -342,7 +342,7 @@ Jolly in this story is made up, and he is not a role model. He makes several mis
 `*Jolly: She's just greeting people at the moment*`
 
 
-  The little bursts of pleasure Slavegirl got whenever she called someone "Master" were really starting to get to her, and in between messages her hand had been drifting between her legs. She had already figured out what it meant to be a chat slave, of course, she just had to obey everyone.
+  The little bursts of pleasure Slavegirl got whenever she called someone "Master" were really starting to get to her, and in between messages her hand had been drifting between her legs. It was pretty obvious at this point what being a chatslave was.
 
 
 `*OrangeOrangatang: We have a new arriaval I met in MM!*`
@@ -400,7 +400,7 @@ Jolly in this story is made up, and he is not a role model. He makes several mis
 `*Jolly: Samantha, you are now wearing a sexy fishnet top with nothing below, and a 8 inch black skirt with a G-string underneath*`
 
 
-  Samantha looked down, and that's exactly what she saw. She knew it was just the hypnosis, and that she had been wearing shorts and a t-shirt just moments before, but it was hard to argue with her senses. She could see the 8 inch skirt, short enough that her ass would be visible is she stood up, and she could reach inside and feel the G-string. She could feel the breeze through her fishnet top, and feel her heavy breasts hanging down without her bra holding them up.
+  Samantha looked down, and that's exactly what she saw. She knew it was just the hypnosis, and that she had been wearing shorts and a t-shirt just moments before, but it was hard to argue with her senses. She could see the 8 inch skirt, short enough that her ass would be visible if she stood up, and she could reach inside and feel the G-string. She could feel the breeze through her fishnet top, and feel her heavy breasts hanging down without her bra holding them up.
 
 
 `*SamIAm: No way!*`
@@ -460,7 +460,7 @@ Jolly in this story is made up, and he is not a role model. He makes several mis
 `*Jolly: Nice. I'll take her*`
 
 
-  What was she doing? She was a slavegirl that lived in Salvdonia? That didn't even make sense! It was of course, Jolly's doing, but it was still really weird. She had truly believed that she was a slave from Slavdonia.
+  What was she doing? She was a slavegirl that lived in Salvdonia? That didn't even make sense! It was of course, Jolly's doing, but it was still really weird. She had really believed what was going on had been real.
 
 
 `*Bosh: Whoa, what just happened?*`
@@ -490,7 +490,7 @@ Jolly in this story is made up, and he is not a role model. He makes several mis
 `*Jolly: Now you love that outfit*`
 
 
-  And just as he said it, she did. Samantha looked down and noticed how sexy she looked, how comfortable she was, the range of motion she had, and she couldn't imagine why she didn't like it earlier. She knew she only liked it because she made him, but she really felt like she liked it.
+  And just as he said it, she did. Samantha looked down and noticed how sexy she looked, how comfortable she was, the range of motion she had, and she couldn't imagine why she didn't like it earlier. She knew she only liked it because he made her, but she really felt like she liked it.
 
 
 `*SamIAm: Oh god Master*`

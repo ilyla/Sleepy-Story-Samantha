@@ -567,14 +567,14 @@ I'M SERIOUS
 
 
 
-1) Make Andrew abuse the **** out of the "has anything else happened today?" trigger
+1) Make Andrew abuse the **** out of the "has anything else happened today?" trigger - check
 
-2) Make Anon Rebecca's pet
+2) Make Anon Rebecca's pet - muahahaha
 
-3) Have Samantha ask to watch a trance, but accidentally get sucked in (person being tranced is Gaige)
+3) Have Samantha ask to watch a trance, but accidentally get sucked in (person being tranced is Gaige, and I'll be the trancer!)
 
 4) Make me trance Samantha again and have her send pics (with consent)
 
 4b) learn how to draw so I can make Samantha send pics
 
-5) Learn how to ask Anon if he can draw so I can make Samantha send pics
+4d) Learn how to ask Anon if he can draw so I can make Samantha send pics
