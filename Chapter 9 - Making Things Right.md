@@ -7,36 +7,37 @@ Annon already had the contents of this chapter spoiled to him because he read my
 
   She stripped her shorts off and got on her laptop. After ctrl+tabbing through a bunch of smut, she finally found the Sleepychat tab and logged on. 
 
-`*A♀↕ElysianTail-Senpai*`
-`* ?↑DeepSleep*`
-`*D♂↕MesmerAdam*`
-`* ♂↕anders*`
-`* ♀↕AmyPeach*`
-`* ♂↕hypnoamp*`
-`*M♀↕Anonymoususer2*`
-`* ♀↕KatB*`
-`*M♂↑ScottB*`
-`* ♀↓Nic*`
-`* ♀↓FireGirlKasi*`
-`* ♀↕FallingInward*`
-`* ♀↓Cookie*`
-`* ♂↓ThatOneGuy*`
-`* ♀↑Mira*`
-`* ♂↑Incubus*`
-`* ♀↓subbyRose*`
-`* ♀↑Mistress-Y*`
-`* ♀↓mindToy*`
-`* ♀↓flowerbomb*`
-`* ♂↓Bumblebrox*`
-`* ♂↑Cloud*`
-`* ♀↓GoodGirl*`
-`* ♂↕Dunkel-fish*`
-`*M♂↕Mushymoose*`
-`* ♂↑WiseGnu*`
-`* ♂↓CrispyCritter*`
-`* ♀↕Gaige*`
-`* ♀↓gudgurl*`
-`* ♂↓Herrozod*`
+`A♀↕ElysianTail-Senpai`
+` ?↑DeepSleep`
+`D♂↕MesmerAdam`
+` ♂↕anders`
+` ♀↕AmyPeach`
+` ♂↕hypnoamp`
+`M♀↕Anonymoususer2`
+` ♀↕KatB`
+`M♂↑ScottB`
+` ♀↓Nic`
+` ♀↓FireGirlKasi`
+` ♀↕FallingInward`
+` ♀↓Cookie`
+` ♂↓ThatOneGuy`
+` ♀↑Mira`
+` ♂↑Incubus`
+` ♀↓subbyRose`
+` ♀↑Mistress-Y`
+` ♀↓mindToy`
+` ♀↓flowerbomb`
+` ♂↓Bumblebrox`
+` ♂↑Cloud`
+` ♀↓GoodGirl`
+` ♂↕Dunkel-fish`
+`M♂↕Mushymoose`
+` ♂↑WiseGnu`
+` ♂↓CrispyCritter`
+` ♀↕Gaige`
+` ♀↓gudgurl`
+` ♂↓Herrozod`
+` ♀↓SamIAm`
 
 `8:32:23 am: [INFO] SamIAm♀↓ has joined.`
 
@@ -188,4 +189,4 @@ Annon already had the contents of this chapter spoiled to him because he read my
 
   She glanced at the clock. It was past nine, and she was a little tired. She decided to work on a work project for a little bit, then go to bed. 
 
-  Although, when glancing down, she realized that were panties were on backwards...
+  Although, when glancing down, she realized that her panties were sitting on the floor next to the chair...

@@ -43,9 +43,9 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
   She opened Google Chrome and went to Sleepychat.com. She was immediately presented with a box with the title "Welcome to Sleepychat". Below this was a simple form asking for a username, gender, role, and whether or not the user wanted to roleplay. She filled out all the information, and clicked "start matchmaking" at the bottom. No later than she had clicked, she was connected to "ScottB".
 
 
-`4:49:30 pm: [INFO] Hi there, SamanthaIAm! You're now connected to the server.`
+`*4:49:30 pm: [INFO] Hi there, SamanthaIAm! You're now connected to the server.*`
 
-`4:49:30 pm: [INFO] Found a chat partner! Say hello to ScottB, a male hypnotist.`
+`*4:49:30 pm: [INFO] Found a chat partner! Say hello to ScottB, a male hypnotist.*`
 
 `*ScottB: Hi!*`
 
@@ -221,7 +221,7 @@ When it comes to hypnosis, Samantha is a natural. Some people have a much easier
 
 `*ScottB: No problem!*`
 
-`6:12:46 pm: [INFO] SamanthaIAm has left.`
+`*6:12:46 pm: [INFO] SamanthaIAm has left.*`
 
 
   Samantha closed the browser tab, but remained in her seat. For a moment, she almost had trouble thinking straight. Had he really hypnotized her? She knew he had, logically, but it felt like the rest of her mind was having trouble catching up. Just the thought of being hypnotized gave her the greatest feeling she'd felt in a long time. She still couldn't believe it. She looked down to the clothes now on the floor, and that simple action sent another wave of sensations crawling up her spine. Deep in her thoughts, she almost didn't catch the second, more intense growl that came from her stomach.

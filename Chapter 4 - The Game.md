@@ -7,37 +7,37 @@ I never go to Tim Horton's, so I apologize if this depiction is not realistic
 
 `<6:56 AM>`
 
-`*The_Id_Monster: Hey! So have you gone to sleepychat yet?*`
+`The_Id_Monster: Hey! So have you gone to sleepychat yet?`
 
-`*Tweety44: I did.*`
+`Tweety44: I did.`
 
-`*The_Id_Monster: Well, did you enjoy it?*`
+`The_Id_Monster: Well, did you enjoy it?`
 
-`*Tweety44: I met this hypnotist in matchmaking, named ScottB.*`
+`Tweety44: I met this hypnotist in matchmaking, named ScottB.`
 
-`*The_Id_Monster: Oh, him. Yea he's fun!*`
+`The_Id_Monster: Oh, him. Yea he's fun!`
 
-`*The_Id_Monster: So what did you do? Did you orgasm? :3*`
+`The_Id_Monster: So what did you do? Did you orgasm? :3`
 
 
   Samantha was a little surprised by that last message. Her friend had never directly talked about erotic things like this before. She looked at the message again.
 
 
-`*The_Id_Monster: So what did you do? Did you get hypnotized? :3
+`The_Id_Monster: So what did you do? Did you get hypnotized? :3
 
 
   She had misread it, but something seemed off... Something had stirred inside of her, and made her feel... aroused? The feeling was extremely faint, so she dismissed it, and returned to the conversation.
 
 
-`*Tweety44: I think I was, actually.*`
+`Tweety44: I think I was, actually.`
 
-`*The_Id_Monster: That's great! Told you it was better than Zetle!*`
+`The_Id_Monster: That's great! Told you it was better than Zetle!`
 
-`*Tweety44: Yea... hey I'll talk later.*`
+`Tweety44: Yea... hey I'll talk later.`
 
-`*Tweety44: I need to get dressed and go to work*`
+`Tweety44: I need to get dressed and go to work`
 
-`*The_Id_Monster: Cya later then!*`
+`The_Id_Monster: Cya later then!`
 
 
   She put some clothes on and went off to work. She was earlier than usual, so she decided to get a Bagel BELT and a coffee at Tim Horton's. Drove to the one she always went to, and parked inside the laundromat next door. She had to wait in line for a few minutes, but it wasn't too bad. Eventually she got to the front of the queue so the boy at the register could take her order.
