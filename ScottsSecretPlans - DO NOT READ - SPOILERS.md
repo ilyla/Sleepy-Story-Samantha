@@ -571,7 +571,7 @@ I'M SERIOUS
 
 2) Make Anon Rebecca's pet - muahahaha
 
-3) Have Samantha ask to watch a trance, but accidentally get sucked in (person being tranced is Gaige, and I'll be the trancer!)
+3) Have Samantha ask to watch a trance, but accidentally get sucked in (person being tranced is Gaige, and I'll be the trancer!)(Optional- double teaaaaaam -Gaige)
 
 4) Make me trance Samantha again and have her send pics (with consent)
 
